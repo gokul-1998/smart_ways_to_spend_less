@@ -1,3 +1,6 @@
+# (14/03/2026) i bought the same bus giftcard from cred ( i got 8.5% and i was able to use CC) [so far the best ]
+
+
 - https://www.woohoo.in/ordercomplete/success
 - i bought a Makemytrip bus coupon at `8% off` (only upi)  and used it in MMT to book a bus
 - <img width="434" height="219" alt="image" src="https://github.com/user-attachments/assets/8734b52e-9e33-46bb-be76-ab25469ce773" />
