@@ -1,3 +1,4 @@
+# 13/06/2026 -> buy mmt(make my trip)  bus gift card using debitcard from woohoo at 7% and additional 5% from kotak 811 super debit card, so in total we get 12% ( remember kotak gives max 100rs cashback per transaction , so let your transaction be only 2000Rs at max to maximize the cashback ) 
 # (14/03/2026) i bought the same bus giftcard from cred ( i got 8.5% and i was able to use CC) [so far the best ]
 
 
